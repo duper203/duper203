@@ -1,4 +1,4 @@
-# Soo Kim
+# Hyesoo Kim
 
 ## 💫 About Me:
 ✨ Currently BS in Sookmyung Women's University<br> 
